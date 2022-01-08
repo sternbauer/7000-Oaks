@@ -1,2 +1,2 @@
 # sternbauer.github.io
-STERNBAUER
+★★★ STERNBAUER ★★★
