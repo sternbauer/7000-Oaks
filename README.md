@@ -1,2 +1,2 @@
-# BEUYS
+# BEUYS 2.0
 ★★★ STERNBAUER ★★★
